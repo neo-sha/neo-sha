@@ -2,7 +2,7 @@
 
 <img width="990" height="20" alt="image" src="https://github.com/user-attachments/assets/402fc785-41dd-41f2-8f47-f3b0dadb6c0b" />
 
-<IMG align="left"  src="https://github.com/user-attachments/assets/00770a12-dc71-48ba-81e1-2cc3bdef3f38" width="370" height="450" />
+<IMG align="left"  src="https://github.com/user-attachments/assets/db9ac721-0dc8-48cc-a300-4ee7cac71d4b" width="370px" height="450" salt="image" />
 
 <img src="https://files.catbox.moe/7fz0c5.gif" width="25" height="25"> ${\color{#272c56} I \space don't \space know \space what \space to \space feel \space or \space do \space at \space this \space time,}$ ${\color{#49426b} I'm \space sorry.}$ ಣ𓈒ֵ۫
 
