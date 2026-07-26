@@ -8,7 +8,7 @@
 
 Ꮺ୧ <img src="https://files.catbox.moe/x8jgvc.gif" width="25" height="25"> ${\color{#a1dfed} why \space are \space you \space still \space here? \space ྀི \space  ˚̣ \space I \space don't \space understand.}$ <img src="https://files.catbox.moe/7ypvys.gif" width="25" height="25"> 
 
-𔘓  ${\color{#b96e94} links \space + \space interaction...}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+𔘓  ${\color{#b96e94} links \space + \space interaction...}$ ᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟 
 
 <img src="https://files.catbox.moe/u1w3mw.webp" width="460" height="140">
