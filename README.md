@@ -1,8 +1,8 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ![](https://komarev.com/ghpvc/?username=N1TEB0I&label=angels+ִֶָ🪽་༘&color=270c58)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ![](https://komarev.com/ghpvc/?username=neo-sha&label=angels+ִֶָ🪽་༘&color=270c58)
 
 <img alighn="right" src="https://files.catbox.moe/m34b2v.webp" width="990" height="20">
 
-<IMG align="left" width="430" height="480" alt="1000073345" src="https://github.com/user-attachments/assets/00770a12-dc71-48ba-81e1-2cc3bdef3f38" />
+<IMG align="left" width="400" height="480" alt="1000073345" src="https://github.com/user-attachments/assets/00770a12-dc71-48ba-81e1-2cc3bdef3f38" />
 
 <img src="https://files.catbox.moe/7fz0c5.gif" width="25" height="25"> ${\color{#e5b1c5} I \space don't \space know \space what \space to \space feel \space or \space do \space at \space this \space time,}$ ${\color{#a95f89} I'm \space sorry.}$ ಣ𓈒ֵ۫
 
