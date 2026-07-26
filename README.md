@@ -8,8 +8,10 @@
 
 Ꮺ୧ <img src="https://files.catbox.moe/x8jgvc.gif" width="25" height="25"> ${\color{#d9cdef} why \space are \space you \space still \space here? \space ྀི \space  ˚̣ \space I \space don't \space understand.}$ <img src="https://files.catbox.moe/7ypvys.gif" width="25" height="25"> 
 
-𔘓  ${\color{#b96e94} links \space + \space interaction...}$ ᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+𔘓  ${\color{#b96e94} fun \ little  \ things...}$ ᅠᅠᅠᅠᅠᅠᅠᅠ  ᅠᅠᅠㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟 
+
+<img width="90" height="51" alt="loveless_stamp_by_stanleykamui_d3137p6" src="https://github.com/user-attachments/assets/90f3e85e-6f50-4804-8233-774868d25788" />
 
 <img width="990" height="20" alt="image" src="https://github.com/user-attachments/assets/402fc785-41dd-41f2-8f47-f3b0dadb6c0b" />
 
