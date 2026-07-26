@@ -2,14 +2,14 @@
 
 <img alighn="right" src="https://files.catbox.moe/m34b2v.webp" width="990" height="20">
 
-<IMG align="left" width="400" height="480" alt="1000073345" src="https://github.com/user-attachments/assets/00770a12-dc71-48ba-81e1-2cc3bdef3f38" />
+<IMG align="left"  src="https://github.com/user-attachments/assets/00770a12-dc71-48ba-81e1-2cc3bdef3f38" width="400" height="480" />
 
 <img src="https://files.catbox.moe/7fz0c5.gif" width="25" height="25"> ${\color{#e5b1c5} I \space don't \space know \space what \space to \space feel \space or \space do \space at \space this \space time,}$ ${\color{#a95f89} I'm \space sorry.}$ ಣ𓈒ֵ۫
 
 Ꮺ୧ <img src="https://files.catbox.moe/x8jgvc.gif" width="25" height="25"> ${\color{#a1dfed} why \space are \space you \space still \space here? \space ྀི \space  ˚̣ \space I \space don't \space understand.}$ <img src="https://files.catbox.moe/7ypvys.gif" width="25" height="25"> 
 
 𔘓  ${\color{#b96e94} links \space + \space interaction...}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟 
 
 <img src="https://files.catbox.moe/u1w3mw.webp" width="460" height="140">
 
