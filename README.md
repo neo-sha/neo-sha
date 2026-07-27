@@ -18,7 +18,7 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="150" height="175" alt="1000073362" src="https://github.com/user-attachments/assets/a732ecce-9eb4-42a4-b49f-40aa6d8dfd36" />
- ᅠᅠᅠᅠᅠᅠᅠᅠ  ᅠᅠᅠㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟ㅤ
+ ᅠᅠᅠᅠᅠᅠᅠᅠ  ᅠᅠᅠㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟ㅤ
 
 
 <img width="990" height="20" alt="image" src="https://github.com/user-attachments/assets/402fc785-41dd-41f2-8f47-f3b0dadb6c0b" />
