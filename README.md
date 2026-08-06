@@ -11,7 +11,10 @@
 ಇ.  ${\color{#b96e94} fun \ little  \ things...}$ ᅠᅠᅠᅠᅠᅠᅠᅠ  ᅠᅠᅠㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ𓎟ㅤ𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟ㅤ𓎟
 
-<img width="90" height="51" alt="loveless_stamp_by_stanleykamui_d3137p6" src="https://github.com/user-attachments/assets/90f3e85e-6f50-4804-8233-774868d25788" /> <img width="100" height="55" alt="tumblr_1ed35bfdcd807d95ef562785e674fb64_f1a882bf_100" src="https://github.com/user-attachments/assets/22f8200a-830a-4f6c-b3fe-3debc42f76df" />  <img width="99" height="50" alt="tumblr_56a828d5be0fe924e32562b7cfcf46e2_9c28df5a_100 (3)" src="https://github.com/user-attachments/assets/daff025c-c8f9-453c-9dda-6587148ef2f5" /> <img width="99" height="50" alt="изображение_2026-07-26_231627720" src="https://github.com/user-attachments/assets/ace054db-8aab-40ab-a77b-48ccea8c8670" /> 
+<img width="90" height="51" alt="loveless_stamp_by_stanleykamui_d3137p6" src="https://github.com/user-attachments/assets/90f3e85e-6f50-4804-8233-774868d25788" /> <img width="100" height="55" alt="tumblr_1ed35bfdcd807d95ef562785e674fb64_f1a882bf_100" src="https://github.com/user-attachments/assets/22f8200a-830a-4f6c-b3fe-3debc42f76df" />  <img width="99" height="50" alt="tumblr_56a828d5be0fe924e32562b7cfcf46e2_9c28df5a_100 (3)" src="https://github.com/user-attachments/assets/daff025c-c8f9-453c-9dda-6587148ef2f5" /> <img width="99" height="50" alt="изображение_2026-07-26_231627720" src="https://github.com/user-attachments/assets/ace054db-8aab-40ab-a77b-48ccea8c8670" /> <img width="99" height="50" alt="tumblr_10b835083c028e9c3eb785929da711bd_fe762ccc_100" src="https://github.com/user-attachments/assets/6e5c21fd-041f-4395-9062-d895ff91ffcc" />
+
+
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="150" height="175" alt="1000073362" src="https://github.com/user-attachments/assets/a732ecce-9eb4-42a4-b49f-40aa6d8dfd36" />
 
